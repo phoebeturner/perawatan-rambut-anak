@@ -12,7 +12,7 @@ Berikut ini, beberapa tips untuk merawat rambut dan kulit kepala anak, yaitu:
 3) Untuk menyisir rambut, kita perlu menggunakan sisir dengan sikat yang lebar. Fungsinya, supaya rambut tidak tersangkut ketika menyisir
 4) Jika rambut sampai perlu diikat, jangan kencang-kencang mengikatnya
 5) Rambut dipotong sesekali jika diperlukan
-6) Perlu juga menggunakan cairan khusus sebagai [cara menghilangkan bau rambut pada anak](https://vickyfahmi.com) supaya rambut tidak bau oleh keringat anak.
+6) Perlu juga menggunakan cairan khusus sebagai [cara menghilangkan bau rambut pada anak](https://vickyfahmi.com/cara-menghilangkan-bau-rambut-pada-anak-dengan-baby-hair-lotion/) yang muncul karena keringat.
 
 Apapun kondisi rambut anak, situasinya akan berubah seiring dengan pertumbuhan dan perkembangan anak. Jadi, kita hanya perlu menikmati saja momen kebersamaan bersama anak kita, termasuk dengan rambut mereka.
 
